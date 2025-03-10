@@ -24,5 +24,8 @@
 
 **OUTPUT**:
 
+![Image](https://github.com/user-attachments/assets/a49257d5-88d2-4dc3-8c55-39d61b056449)
 
+
+![Image](https://github.com/user-attachments/assets/98a5efaa-2143-40a3-9359-06576b832605)
   
